@@ -20,6 +20,7 @@ Di lampu merah, Rizqi sedang berbicara dengan bapak-bapak di pinggir jalan, mena
 
 VERIFIKASI. Aku tau. Bapak-bapak yang baik ini sedang melakukan verifikasi. Ini adalah langkah untuk memastikan apakah benar kami pemilik dompet yang jatuh itu atau bukan. Aku pernah belajar ini dari pengalaman yang lain, bahwa memang ketika akan mengembalikan barang, ada baiknya kalau kita lakukan verifikasi sehingga barang yang kita kembalikan itu tidak jatuh ke tangan yang salah.
 
+```
 >"Hitam, warna dompetnya hitam."
 >
 >"Siapa namanya?"
@@ -27,6 +28,7 @@ VERIFIKASI. Aku tau. Bapak-bapak yang baik ini sedang melakukan verifikasi. Ini 
 >"Muhammad Mishbahi Pak," jawabku dengan penuh semangat, karna itulah jawaban yang dibutuhkan. Aku, sang pemilik dompet, aku tahu isi dompet itu atas nama siapa. Hanya saja... aku menjawab sambil menyalakan motor yang mati.
 >
 >"Kenapa itu disela."
+```
 
 Aku seketika terdiam. Menyandarkan sikuku pada motor. Memasang raut wajah serius. Dan menatap bapak-bapak itu tajam.
 
