@@ -6,7 +6,7 @@ Yah, untuk apa juga berlama-lama di kantor.
 
 Aku melewati satu ruangan kecil, yang berisi beberapa orang sedang mengobrol. Itu normal saja sebenarnya. Hanya saja, yang aku tidak expect adalah...
 
-> "Jean, sini-sini masuk."
+> "Rin, sini-sini masuk."
 
 Eh, mereka tau aku? Aku diajak? Eh?
 
@@ -16,9 +16,9 @@ Semakin lama mengobrol. Obrolan semakin ke mana-mana. Itu normal saja sebenarnya
 
 > "Dia itu orangnya suka cerita. Gatau deh. Mungkin dia suka cerita-cerita sama orang asing gitu."
 >
-> "Oh, iya sih bisa jadi, Mas. Aku juga kalau ketemu orang asing, terus enak buat diajak ngobrol, bisa jadi ngobrol banyak. Dan poin plus nya adalah, kalau sama orang asing, aku gak perlu takut di-judge atau dijauhi. Toh memang tidak kenal, kan."
+> "Oh, iya sih bisa jadi, Mbak. Aku juga kalau ketemu orang asing, terus enak buat diajak ngobrol, bisa jadi ngobrol banyak. Dan poin plus nya adalah, kalau sama orang asing, aku gak perlu takut di-judge atau dijauhi. Toh memang tidak kenal, kan."
 >
-> "Iya, bisa jadi dia kayak gitu juga. Mungkin loh ya."
+> "Iya, bisa jadi dia kayak gitu juga, Rin. Mungkin loh ya."
 
 Siapa sangka, orang yang selama ini mengisi pikiranku sehari-hari, orang yang tidak bisa kuhilangkan dari pikiranku, yang selama ini kupikir bersikap cuek karna memang sikapnya cuek. Ternyata dia suka bercerita. Suka berbicara.
 
@@ -34,7 +34,7 @@ Di satu sisi, ini menyakitkan. Aku tidak merasa bahwa fakta ini salah. Hanya saj
 
 > "Kim, setelah kejadian itu, aku ngerasa kalau dia nggak mungkin punya ketertarikan denganku. Nggak mungkin, kan? Tolong yakinkan aku. Yakinkan aku kalau dia memang tidak mungkin menyukaiku. Aku masih percaya, aku tidak tahu harus apa. Sebagai orang yang memang mengenalnya, tolong yakinkan aku kalau memang dia tidak mungkin menyukaiku.
 >
-> "Kalau katanya gitu, ya berarti kamu nggak perlu mikir another option lagi, Jean. Tapi jujur aku udah nggak update kehidupan dia lagi. Kalau kamu mau info terbaru, coba tanya Diki atau Surya. Setauku, mereka yang sering ngobrol sama dia."
+> "Kalau katanya gitu, ya berarti kamu nggak perlu mikir another option lagi, Rin. Tapi jujur aku udah nggak update kehidupan dia lagi. Kalau kamu mau info terbaru, coba tanya Diana atau Nina. Setauku, mereka yang sering ngobrol sama dia."
 
 Ralat.
 
