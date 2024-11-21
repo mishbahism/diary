@@ -6,6 +6,7 @@ Rekap Hari Ini:
 - Print Daftar Riwayat Hidup, buat Lega dan Budi
 - Beli matrai
 - Ke kantor, sampe jam 10an
+- Ini hari ke 3 acara SIS, dari senin. Jadi hari ini kantor (lantai 2 sih), sangat-sangat kosong.
 - Main pingpong
 - Solat
 - Ngobrol sama bang Rihan
