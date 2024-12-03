@@ -12,4 +12,4 @@ Kalau kita benci dan kesal untuk setiap keburukan yang terjadi, bukankah itu men
 
 Barangkali orang yang kamu hujat adalah kamu di masa depan? Senikmat itukah menjilat ludah sendiri? Itu bukan hal yang mustahil, kau tau, karna perbedaan antara mereka yang curang dengan kalian hanyalah kesempatannya.
 
-Fokus saja pada apa yang benar dan apa yang salah untuk diri sendiri, sisanya biarn Allah yang tegakkan keadilan :)
+Fokus saja pada apa yang benar dan apa yang salah untuk diri sendiri, sisanya biarkan Allah yang tegakkan keadilan :)
