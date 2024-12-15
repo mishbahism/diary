@@ -104,7 +104,7 @@ Kurasa, kehidupan kuliah gak bakal jauh beda dengan kehidupan SMA. Aku harap tem
 
 Malam itu, Hana dan Dimas jadi makan malam bersama. Tapi, ternyata mereka makan bersama teman-teman yang lain. Dan ternyata, semuanya pulang naik ojol masing-masing.
 
-Sepertinya, kekhawatiranku berlebihan ya.
+*Sepertinya, kekhawatiranku berlebihan ya...*
 
 Aku tersenyum.
 
