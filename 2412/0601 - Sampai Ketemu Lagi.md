@@ -2,13 +2,13 @@
 
 Sore yang mendung di halaman sekolah. Burung-burung beterbangan. Awan abu-abu bergerak perlahan. Suasana sedih. Tenang. Dingin. Menyelimuti. Menurutku, itu adalah suasana yang pas sekali untuk perpisahan dengan teman-temanku. Ntah kapan aku akan bertemu mereka lagi. Mungkin ketika kita bertemu kembali, akan ada yang jadi pengusaha? Ada yang jadi guru? Ada yang jadi istri pejabat? Ada yang jadi istri keempat? Ntahlah. Kalau aku, kurasa aku lebih cocok jadi guru TK.
 
-**Bu Hilda, Bu Hilda, aku mau pipis.** 
+*Bu Hilda, Bu Hilda, aku mau pipis.* 
 
 Terdengar lumayan cocok.
 
 Yang lain sedang asik mengobrol di depan aula. Ramai sekali. Sementara aku, seperti biasa merenung di pinggiran pendopo. Memperhatikan mereka dari jauh. Aku masih terganggu dengan Hana... 
 
-**Dia bakalan baik-baik aja gak ya? Dia bakal banyak dideketin cowo nakal gak ya di kampus nanti?**
+*Dia bakalan baik-baik aja gak ya? Dia bakal banyak dideketin cowo nakal gak ya di kampus nanti?*
 
 Pikiranku agak campur aduk. Aku senang karena akhirnya perjalanan SMA-ku kini selesai, tidak ada PR lagi (tapi kuliah juga bakal sibuk sih), dan hidup yang baru akan dimulai. Di sisi lain, aku juga sedih karena harus meninggalkan teman-temanku. Yah, meskipun temanku tidak banyak sih.
 
@@ -18,7 +18,7 @@ Pikiranku agak campur aduk. Aku senang karena akhirnya perjalanan SMA-ku kini se
 
 Aku menunjukkan sikap yang biasa-biasa saja dengan wajah lelahku. Wajar kurasa. Seharian menghadiri acara perpisahan, berada di tengah keramaian. Tapi sebenarnya, aku sangat senang dan terkejut dengan kedatangan Hana.
 
-**Apa? Kebetulan macam apa ini? Aku memang berharap bisa ngobrol sama Hana sih habis perpisahan, tapi, ini kebetulan banget... Apakah doaku dikabulkan??**
+*Apa? Kebetulan macam apa ini? Aku memang berharap bisa ngobrol sama Hana sih habis perpisahan, tapi, ini kebetulan banget... Apakah doaku dikabulkan??*
 
 Di kelas, memang benar, hanya ada tas kami berdua. Kupikir, yah, aku akan tunggu saja sambil merapikan folderku. Paling-paling dia akan pulang duluan. Aku mungkin terlalu berlebihan dengan Hana. Aku sebenernya kan gak berhak buat ngatur-ngatur kehidupan dia. Tapi, di sisi lain aku juga berpikir, kalau bukan aku yang ngomongin 'hal itu', siapa lagi? Itu memang tugasku.
 
@@ -26,7 +26,7 @@ Aku sibuk mengutak-atik laptopku yang masih menganga sejak tadi pagi. Aku harap,
 
 Tapi...
 
-**Ni orang kenapa gak pulang-pulang woyy. Malah ngecas hape pula. Tuh. Ngecas. Scrolling lagi. Hadeh. Yaudah oke. Ngecas hape ya. Aku akan anggap itu isyarat dia mau ngobrol denganku.**
+*Ni orang kenapa gak pulang-pulang woyy. Malah ngecas hape pula. Tuh. Ngecas. Scrolling lagi. Hadeh. Yaudah oke. Ngecas hape ya. Aku akan anggap itu isyarat dia mau ngobrol denganku.*
 
 > "Ehm. Si Dimas lagi ke mana?" Aku membuka obrolan. Aku duduk di depan lapopku di meja paling belakang, sementara Hana berdiri sambil ngecas hape di meja paling depan.
 > 
@@ -96,7 +96,7 @@ Menurutku, apa yang kusampaikan sudah cukup. Sebenarnya masih ada banyak. Tapi, 
 
 Kami kembali ke depan aula, dan di sana ternyata banyak anak-anak yang lain masih mengobrol. Hana ikut ke kerumunan orang-orang, sementara aku sudah tidak tahan. Aku berjalan pulang meninggalkan mereka.
 
-**Mereka ini sepertinya tidak punya batasan energi ya?**
+*Mereka ini gak punya batasan energi ya?*
 
 Sepertinya, inilah akhirnya. Satu perjalanan selesai, dan sekarang saatnya memulai perjalanan baru.
 
