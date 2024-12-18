@@ -76,7 +76,7 @@ Aku beranjak dari mejaku ke meja tempat Hana duduk dan mengambil kursi. Kini kit
 > 
 > "Iya, emang kita cuma bisa berharap lewat solat kita. Aku tau kok."
 
-Aku tersenyum.
+Aku tersenyum. Aku senang Hana punya pandangan yang bagus tentang solat.
 
 > "Jangan banyak gibah juga ya."
 > 
