@@ -10,19 +10,19 @@ Yang lain sedang asik mengobrol di depan aula. Ramai sekali. Sementara aku, sepe
 
 *Dia bakalan baik-baik aja gak ya? Dia bakal banyak dideketin cowo nakal gak ya di kampus nanti?*
 
-Pikiranku agak campur aduk. Aku senang karena akhirnya perjalanan SMA-ku kini selesai, tidak ada PR lagi (tapi kuliah juga bakal sibuk sih), dan hidup yang baru akan dimulai. Di sisi lain, aku juga sedih karena harus meninggalkan teman-temanku. Yah, meskipun temanku tidak banyak sih.
+Pikiranku agak campur aduk. Aku senang karena akhirnya perjalanan SMA-ku kini selesai dan hidup yang baru akan dimulai. Di sisi lain, aku juga sedih karena harus meninggalkan teman-temanku. Yah, meskipun temanku tidak banyak sih.
 
 > "Hilda, ayo ambil tas," ajak Hana yang tiba-tiba menghampiriku. "Tinggal tas kita berdua tau yang masih di kelas."
 > 
-> "Eh. Oh ya?" Aku terkejut sembari menoleh ke samping. "Yuk."
+> "Eh," aku tersentak sembari menoleh ke samping. "Oh ya? Yuk."
 
 Aku menunjukkan sikap yang biasa-biasa saja dengan wajah lelahku. Wajar kurasa. Seharian menghadiri acara perpisahan, berada di tengah keramaian. Tapi sebenarnya, aku sangat senang dan terkejut dengan kedatangan Hana.
 
-*Apa? Kebetulan macam apa ini? Aku memang berharap bisa ngobrol sama Hana sih habis perpisahan, tapi, ini kebetulan banget... Apakah doaku dikabulkan??*
+*Apa? Kebetulan macam apa ini? Aku memang berharap supaya bisa ngobrol sama Hana setelah perpisahan, sebelum akhirnya kita berpisah, tapi, ini kebetulan banget... Apakah doaku dikabulkan??*
 
-Di kelas, memang benar, hanya ada tas kami berdua. Kupikir, yah, aku akan tunggu saja sambil merapikan folderku. Paling-paling dia akan pulang duluan. Aku mungkin terlalu berlebihan dengan Hana. Aku sebenernya kan gak berhak buat ngatur-ngatur kehidupan dia. Tapi, di sisi lain aku juga berpikir, kalau bukan aku yang ngomongin 'hal itu', siapa lagi? Itu memang tugasku.
+Di kelas, memang benar, hanya ada tas kami berdua. Kupikir, yah, aku akan tunggu saja sambil merapikan folderku. Paling-paling dia akan pulang duluan. Aku mungkin terlalu berlebihan dengan Hana. Aku sebenernya kan tidak berhak untuk mengatur-ngatur kehidupan dia. Tapi, di sisi lain aku juga berpikir, kalau bukan aku yang ngomongin 'hal itu', siapa lagi? Itu memang tugasku.
 
-Aku sibuk mengutak-atik laptopku yang masih menganga sejak tadi pagi. Aku harap, Hana cepat pergi. Kalau tidak, aku akan mulai berceramah karena naluri keibuanku meronta-ronta. Aku gak mau juga jadi teman yang punya image suka ngatur-ngatur.
+Aku sibuk mengutak-atik laptopku yang masih menganga sejak tadi pagi. Aku harap, Hana cepat pergi. Kalau tidak, aku akan mulai berceramah karena naluri keibuanku sudah meronta-ronta. Aku juga tidak ingin menjadi teman yang punya image suka ngatur-ngatur.
 
 Tapi...
 
@@ -36,7 +36,7 @@ Tapi...
 > 
 > "Kayaknya jadi sih."
 > 
-> "Nanti pasti kamu pulangnya dianter dia ya. Gimana ya, itu gak bagus loh Han."
+> "Nanti pasti kamu pulangnya dianter dia lagi ya. Gimana ya, itu gak bagus loh Han."
 > 
 > "Iya aku tau, aku juga gak enak sih..."
 
@@ -58,13 +58,13 @@ Aku beranjak dari mejaku ke meja tempat Hana duduk dan mengambil kursi. Kini kit
 
 > "Hana, kita tuh sebagai cewe harusnya bisa jaga diri, jangan mau dimainin... Jangan gampang dideketin. Nanti di kuliah pasti kita bakal ketemu sama banyak cowo yang mainnya bisa jadi lebih ngeri. Emang pergaulan cowo sama cewe sekarang itu bebas, saling goda-dodaan itu udah biasa, dan itu udah jadi hal yang wajar banget. Tapi, salah itu tetep aja salah. Yang rugi nanti kamu sendiri. Aku gamau kamu kenapa-kenapa..."
 > 
-> "Iya aku tau... Tapi sebenernya cowok juga sama kayak kita juga kan? Harus jaga diri."
+> "Iya aku tau... Tapi sebenernya cowo itu juga sama kan? Harus jaga diri."
 > 
 > "Iya sih. Tapi Han... Cowo gak mungkin digodain sama abang-abang."
 > 
-> "Hahahaa, iya lagi. Bener sih."
+> "Hahahaa. Bener sih."
 > 
-> "Tapi kalau perempuan, apalagi cantik kayak kamu, pasti jadi inceran... Digodain lah. Dipepet-pepetin lah. Kamu hati-hati ya nanti..."
+> "Tapi kalau perempuan, apalagi cantik kayak kamu, pasti jadi inceran... Digodain lah. Dipepet-pepetin lah. Kamu jaga diri ya nanti... Cari temen yang baik, cari lingkungan yang baik."
 > 
 > "Iya deh. Aku bakal jaga diri kok. Mamaku juga pesan nanti pas kuliah gausah suka-sukaan dulu sama orang."
 > 
@@ -80,7 +80,7 @@ Aku tersenyum.
 
 > "Jangan banyak gibah juga ya."
 > 
-> "Hahahah, iya iya deh. Aku sebenernya gak suka gibah juga. Tapi ya, kalau ada yang mulai, aku kayaknya ikut dengerin aja."
+> "Hahahah, iya deh iya. Aku sebenernya gak suka gibah juga. Tapi ya, kalau ada yang mulai, aku kayaknya ikut dengerin aja."
 > 
 > "Kalau kamu bisa alihkan pembicaraannya supaya gak jadi gibah, menurutku lebih bagus lagi, jadi kamu bisa tetep ngumpul sama yang lain. Jangan kayak aku..."
 > 
@@ -108,7 +108,7 @@ Malam itu, Hana dan Dimas jadi makan malam bersama. Tapi, ternyata mereka makan 
 
 Aku tersenyum.
 
-Hari yang panjang, sekarang saatnya tidur...
+*Hari yang panjang, sekarang saatnya tidur...*
 
 
 
