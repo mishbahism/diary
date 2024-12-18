@@ -28,7 +28,7 @@ Tapi...
 
 *Ni orang kenapa gak pulang-pulang woyy. Malah ngecas hape pula. Tuh. Ngecas. Scrolling lagi. Hadeh. Yaudah oke. Ngecas hape ya. Aku akan anggap itu isyarat dia mau ngobrol denganku.*
 
-> "Ehm. Si Dimas lagi ke mana?" Aku membuka obrolan. Aku duduk di depan lapopku di meja paling belakang, sementara Hana berdiri sambil ngecas hape di meja paling depan.
+> "Ehm. Si Dimas lagi ke mana?" Aku membuka obrolan. Aku duduk di depan laptopku di meja paling belakang, sementara Hana berdiri sambil ngecas hape di meja paling depan.
 > 
 > "Ada urusan tuh, sama temen-temennya. Biasalah anak organisasi."
 > 
@@ -56,7 +56,7 @@ Hana beranjak dari meja depan ke meja tengah, meninggalkan hapenya, lalu duduk. 
 
 Aku beranjak dari mejaku ke meja tempat Hana duduk dan mengambil kursi. Kini kita duduk saling berhadap-hadapan. Aku menatap matanya dengan perasaan yang campur aduk. Aku takut dia ngerasa kalau aku tukang ngatur. Tapi aku harus ngomongin ini. Aku mau dia tau, kalau aku serius masalah ini. Dan aku benar-benar khawatir.
 
-> "Hana, kita tuh sebagai cewe harusnya bisa jaga diri, jangan mau dimainin... Jangan gampang dideketin. Nanti di kuliah pasti kita bakal ketemu sama banyak cowo yang mainnya bisa jadi lebih ngeri. Emang pergaulan cowo sama cewe sekarang itu bebas, saling goda-dodaan itu udah biasa, dan itu udah jadi hal yang wajar banget. Tapi, salah itu tetep aja salah. Yang rugi nanti kamu sendiri. Aku gamau kamu kenapa-kenapa..."
+> "Hana, kita tuh sebagai cewe harusnya bisa jaga diri, jangan mau dimainin... Jangan gampang dideketin. Nanti di kuliah pasti kita bakal ketemu sama banyak cowo yang mainnya bisa jadi lebih ngeri. Emang pergaulan cowo sama cewe sekarang itu bebas, saling goda-godaan itu udah biasa, udah jadi hal yang wajar banget. Tapi, salah itu tetep aja salah. Yang rugi nanti kamu sendiri. Aku gamau kamu kenapa-kenapa..."
 > 
 > "Iya aku tau... Tapi sebenernya cowo itu juga sama kan? Harus jaga diri."
 > 
