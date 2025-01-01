@@ -17,7 +17,7 @@ Itu dari segi bentuknya. Dari segi topiknya, aku bakal ngomongin apa aja??
 1. Pengalamanku
 2. Kepribadianku
 3. Cita-citaku
-4. Insgihtku tentang sesuatu
+4. Insight-ku tentang sesuatu
 5. Pengetahuanku tentang sesuatu
 
 Kayaknya, isinya nanti it's all about me. Bakal narsis banget dah. It's just me myself and I. Aku aku dan aku. Curhat lah mungkin ya :" Yah, selfish sih emang menulis tentang diri sendiri dan meminta orang lain membaca. Tapi, yah gapapa lah ya. Toh kalau ganggu juga tinggal skip. Unfoll juga boleh. Yang penting kalian nyaman aja. Yang penting aku gak ganggu. Aku gabakal nanya juga kok kalian baca atau nggak. Jadi nothing to worryy.
