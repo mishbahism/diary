@@ -20,64 +20,64 @@ Itu dari segi bentuknya. Dari segi topiknya, aku bakal ngomongin apa aja??
 4. Insgihtku tentang sesuatu
 5. Pengetahuanku tentang sesuatu
 
-Kayaknya, isinya nanti it's all about me. Bakal narsis banget dah. It's just me myself and I. Aku aku dan aku. Yah, selfish sih emang menulis tentang diri sendiri dan meminta orang lain membaca. Tapi, yah gapapa lah ya. Toh kalau ganggu juga tinggal skip. Unfol juga boleh. Yang penting kalian nyaman aja. Yang penting aku gak ganggu. Aku gabakal nanya juga kok kalian baca atau nggak. Jadi nothing to worryy.
+Kayaknya, isinya nanti it's all about me. Bakal narsis banget dah. It's just me myself and I. Aku aku dan aku. Curhat lah mungkin ya :" Yah, selfish sih emang menulis tentang diri sendiri dan meminta orang lain membaca. Tapi, yah gapapa lah ya. Toh kalau ganggu juga tinggal skip. Unfoll juga boleh. Yang penting kalian nyaman aja. Yang penting aku gak ganggu. Aku gabakal nanya juga kok kalian baca atau nggak. Jadi nothing to worryy.
 
 Haha aku narsistik dan people pleaser di saat yang bersamaan. Gabisa ges. Itu 2 hal yang sulit kubuang dari dalam diri sendiri. Sebenarnya sangat bertolak belakang bagai air dan minyak. Tapi yah. Gatau ya, 2 sifat itu udah ada lama banget gak hilang-hilang.
 
-Ini adalah rencana daftar topik yang bakal kubahas. Nah, di tengah-tengah nanti mungkin aja akan ada perubahan. Ntah gajadi kutulis. Ntah terdelay beberapa hari. Ntah urutannya berubah. Ntah ganti topik. Tapi gambarannya, aku bakal nulis hal-hal berikut.
+Ini adalah rencana daftar topik yang bakal kubahas. Nanti, di tengah-tengah mungkin aja akan ada perubahan. Ntah gajadi kutulis. Ntah terdelay beberapa hari. Ntah urutannya berubah. Ntah ganti topik. Tapi gambarannya, aku bakal nulis hal-hal berikut.
 
 1. Konsep 30 hari bercerita tahun ini
-2. Pengen punya istri gimana (ini kutujukan untuk vanni, aku mau curhat aku itu gimana, aku pengen cewe yang gimana, aku takut apa, aku pengen dia gimana)
-3. Pengen punya anak gimana
-4. Pengen punya rumah gimana
-5. Aku suka penempatanku
-6. Kejadian baik di penempatan
-7. Ditertawakan teman
-8. Bikin script python untuk ubah akses file gdrive
-9. Aku suka OJT
-10. Aku bukan penjaga
-11. Aplikasi dzikir
-12. Kebiasan beres-beres rumah
-13. Tergila-gila sama kopi
-14. Kenapa Agama itu penting?
-15. Aku takut tidak bisa bersyukur dengan benar
-16. Bersihin air pake tawas
-17. Hapus instagram beberapa kali
-18. Bikin script pakai gpt, codeium
-19. Cara menghafal metodeku
-20. Menghafal dengan lagu
-21. Pengen kerja di perusahaan besar
-22. Copycat, selalu kagum sama orang
-23. Kepribadian INFP-ku
-24. Kecewe-cewean
-25. Ngomong kasar
-26. Hobi hafalan dan menulis
-27. Cara bikin website pake html css js bootrstrap ci4
-28. Logical fallacy favorit
-29. Cara masak 3 keseimbangan rasa
-30. Rumus-rumus berguna di Excel
-31. Penggunaan whitespace di desain dan kesederhanaan
-32. Teori humor rule of three
-33. Teori cara bercerita yang menarik dan membosankan
-34. Perbedaan orang praktical dan teori
-35. Menggunakan git untuk manajemen proyek
-36. Menggunakan markdown untuk menulis
-37. Membuat website sederhana dengan Medium, dengan wordpress
-38. Tutorial menginput data tabel gambar ke excel
-39. Tutorial menghapus background foto
-40. Penggunaan timeblock untuk manajemen waktu
-41. Konsep pembuatan habit
-42. Mendengarakan orang lain, menanam kebaikan, menanam hutang budi
-43. Teori berapa lama toko buka untuk dikenal masyarakat
-44. Skema bisnis makelar
-45. Demokrasi itu nggak adil dan aneh
-46. ADHD, OCD, DEPRESI
-47. Kerjain soal matematika GoF
-48. Logika itu gak mesti masuk akal dan benar, tapi masalah konsistensi
-49. Cara pronounce
-50. Kesalahan baca quran
-51. Kesalahan dalam shalat
-52. Teknik menghafal dengan lagu
+2. Pengen punya istri gimana
+3. Aku suka penempatanku
+4. Ditertawakan teman
+5. Bikin script pakai gpt, codeium
+6. Bikin script python untuk ubah akses file gdrive
+7. Teori cara bercerita yang menarik dan membosankan
+8. Kenapa Agama itu penting?
+9. Aplikasi dzikir
+10. Copycat, selalu kagum sama orang
+11. Kebiasan beres-beres rumah
+12. Kejadian baik di penempatan
+13. Aku bukan penjaga
+14. Aku cemburuan banget
+15. Aku suka OJT
+16. Pengen punya rumah gimana
+17. Tergila-gila sama kopi
+18. Aku takut tidak bisa bersyukur dengan benar
+19. Bersihin air pake tawas
+20. Hapus instagram beberapa kali
+21. Pengen punya anak gimana
+22. Cara menghafal metodeku
+23. Menghafal dengan lagu
+24. Pengen kerja di perusahaan besar
+25. Kepribadian INFP-ku
+26. Kecewe-cewean
+27. Ngomong kasar
+28. Hobi hafalan dan menulis
+29. Cara bikin website pake html css js bootrstrap ci4
+30. Logical fallacy favorit
+31. Cara masak 3 keseimbangan rasa
+32. Rumus-rumus berguna di Excel
+33. Penggunaan whitespace di desain dan kesederhanaan
+34. Teori humor rule of three
+35. Perbedaan orang praktical dan teoritis
+36. Menggunakan git untuk manajemen proyek
+37. Menggunakan markdown untuk menulis
+38. Membuat website sederhana dengan Medium, dengan wordpress
+39. Tutorial menginput data tabel gambar ke excel
+40. Tutorial menghapus background foto
+41. Penggunaan timeblock untuk manajemen waktu
+42. Konsep pembuatan habit
+43. Mendengarakan orang lain, menanam kebaikan, menanam hutang budi
+44. Teori berapa lama toko buka untuk dikenal masyarakat
+45. Skema bisnis makelar
+46. Demokrasi itu nggak adil dan aneh
+47. ADHD, OCD, DEPRESI
+48. Kerjain soal matematika GoF
+49. Logika itu gak mesti masuk akal dan benar, tapi masalah konsistensi
+50. Cara pronounce
+51. Kesalahan baca quran
+52. Kesalahan dalam shalat
 
 Stay tuned ya gaes.
 

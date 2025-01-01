@@ -44,7 +44,7 @@ Nah apa aja yang mau kutulis? Kayaknya aku akan mengenalkan diriku kepada teman-
 31. Penggunaan whitespace di desain dan kesederhanaan
 32. Teori humor rule of three
 33. Teori cara bercerita yang menarik dan membosankan
-34. Perbedaan orang praktical dan teori
+34. Perbedaan orang praktical dan teoritis
 35. Menggunakan git untuk manajemen proyek
 36. Menggunakan markdown untuk menulis
 37. Membuat website sederhana dengan Medium, dengan wordpress
@@ -62,4 +62,3 @@ Nah apa aja yang mau kutulis? Kayaknya aku akan mengenalkan diriku kepada teman-
 49. Cara pronounce
 50. Kesalahan baca quran
 51. Kesalahan dalam shalat
-52. Teknik menghafal dengan lagu
