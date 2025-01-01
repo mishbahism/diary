@@ -2,7 +2,7 @@
 
 Hai Hai Hai ini adalah tanggal 1 Januari 2025. Hari pertama di tahun ini. Apa artinya? Bukan, bukan Rabu. Ini artinya, akan ada event tahunan 30 Hari Bercerita dari akun @30haribercerita. Aku udah ikut ini beberapa kali, dan kayaknya tahun ini aku ikut lagi.
 
-Nah selama 30 hari ke depan, mungkin kalian akan melihat tulisan-tulisanku tiap hari muncul di home kalian. Yah, kalau mengganggu skip aja. Tapi kalau boleh, ya, boleh kali kalian baca tulisan-tulisankuu hehe. Baca lah ya, dikit aja kah. Baca lah yaa :"
+Nah selama 30 hari ke depan, mungkin kalian akan melihat tulisan-tulisanku tiap hari muncul di home kalian. Yah, kalau mengganggu skip aja. Tapi kalau boleh, ya kalau boleh ya, boleh kali kalian baca tulisan-tulisankuu hehe. Baca lah ya, dikit aja gapapa. Baca lah yaa :"
 
 Nah, tapi gak kayak tahun-tahun lalu yang aku nulis spontan aja tiap hari, kali ini aku bakal rencanakan apa aja yang akan aku tulis. Jadi apa aja nih yang bakal kalian liat 30 hari ke depan?
 
