@@ -1,6 +1,6 @@
 # Pengen Istri Gimana
 
-Langsung saja kriteria yang selalu kusebutkan:
+Langsung saja ke kriteria yang selalu kusebutkan dari dulu:
 
 - Sangat terobsesi sama agama
 - Bisa dan tahan ngomong sama aku
@@ -42,6 +42,6 @@ Cuman, ada 2 sih masalahnya.
 
 Pertama, aku nggak sedeket itu, aku bener-bener gak tau gimana semangat ibadahnya sebenarnya, yang mana itu krusial banget buatku. Terus kedua juga, aku ngerasa aneh, karna tiba-tiba aku meninggalakan perasaanku ke orang yang sebelumnya, yang sudah kusimpan lebih dari 6 tahun. Untuk orang yang baru banget kukenal? Aneh gak sih. Secara logika, artinya mungkin aja tahun depan aku kenal orang baru dan perasaanku yang sekarang hilang gitu aja. Ya gak sih.
 
-Aku bakal tunggu sedikit lebih lama lagi. Baru sampaikan apa yang perlu kusampaikan.
+Aku bakal tunggu sedikit lebih lama lagi. Lalu, sampaikan apa yang perlu kusampaikan.
 
 Siapa pun kamu nanti, aku mau kamu tetap semangat dalam ibadah ya. Jangan kendor. Dan jangan sampai ibadah karna aku. Ibadah lah karna itu tujuan manusia diciptakan. Nanti, kamu bantu aku ya. Biar kita sama-sama jadi orang yang lebih baik. Biar kita bisa kumpul lagi di surga nanti.
