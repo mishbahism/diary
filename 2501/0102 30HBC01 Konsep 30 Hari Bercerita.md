@@ -60,7 +60,7 @@ Ini adalah rencana daftar topik yang bakal kubahas. Nanti, di tengah-tengah mung
 32. Rumus-rumus berguna di Excel
 33. Penggunaan whitespace di desain dan kesederhanaan
 34. Teori humor rule of three
-35. Perbedaan orang praktical dan teoritis
+35. Perbedaan orang practical dan teoritis
 36. Menggunakan git untuk manajemen proyek
 37. Menggunakan markdown untuk menulis
 38. Membuat website sederhana dengan Medium, dengan wordpress
