@@ -6,9 +6,9 @@ Langsung saja ke kriteria yang selalu kusebutkan dari dulu:
 - Bisa dan tahan ngomong sama aku
 - Cantik (gak mesti cantik banget)
 
-Kalau boleh dibilang, aku sangat-sangat terobsesi sama agama Islam.
+Kalau boleh dibilang, aku sangat-sangat terobsesi sama agama Islam. Prioritas paling atas.
 
-Singkat cerita di kelas 11 aku merenungi apa yang harus kupelajari. Aku anak olim matematika, dan ngerjain soal itu kayak salah satu hobiku banget, tapi menurutku matematika itu nggak bakal terlalu banyak kepake di dunia kerja, apalagi sampe hari tua. Setelah merenung berminggu-minggu, aku putuskan kalau aku bakal belajar agama aja. Jangankan sampai tua. Sampe di kehidupan setelah kematian pun agama yang kupelajari bakalan masih kepake. Aku gabakal rugi sama sekali!
+Singkat cerita di kelas 11, aku merenungi apa yang harus kupelajari. Aku anak olim matematika, dan ngerjain soal itu kayak salah satu hobiku banget, tapi menurutku matematika itu nggak bakal terlalu banyak kepake di dunia kerja, apalagi sampe hari tua. Setelah merenung berminggu-minggu, aku putuskan kalau aku bakal belajar agama aja. Jangankan sampai tua. Sampe di kehidupan setelah kematian pun agama yang kupelajari bakalan masih kepake. Aku gabakal rugi sama sekali!
 
 Mulailah aku menghafal quran dan belajar agama. Dari youtube. Baca buku. Ikut kajian.
 
