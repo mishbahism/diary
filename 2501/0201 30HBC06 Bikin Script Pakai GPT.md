@@ -4,7 +4,7 @@ Tahun 2022, orang-orang pada mulai pakai ChatGPT buat ngerjain tugas. Sebagai or
 
 ```java
 for(int i = 0; i < 100; i++){
-    System.out.println("SANAGAT");
+    System.out.println("SANGAT");
 }
 ```
 
