@@ -46,7 +46,7 @@ Kemudian, ingatanku di akhir kelas 5 selesai.
 
 > Para Ulama sepakat bahwa anak keturunan dari seorang Muslim akan masuk surga. Imam an-Nawawi rahimahullah mengatakan.
 >
-> ”Mereka yang terhitung sebagai Ulama Islam sepakat bahwa orang yang meninggal dari kalangan anak-anak umat Islam akan masuk surga, karena mereka belum dibebani taklîf (mukallaf).” $^{[1]}$
+> ”Mereka yang terhitung sebagai Ulama Islam sepakat bahwa orang yang meninggal dari kalangan anak-anak umat Islam akan masuk surga, karena mereka belum dibebani taklîf (mukallaf).” [1]
 >
 > Di antara dalil yang mendasarinya adalah sabda Rasûlullâh Shallallahu ‘alaihi wa sallam :
 >
@@ -63,7 +63,7 @@ Kemudian, ingatanku di akhir kelas 5 selesai.
 >
 > Abu Hassan meriwayatkan,
 >
-> “Saya berkata kepada Abu Hurairah Radhiyallahu anhu, ‘Dua orang putra saya telah meninggal. Adakah hadits dari Rasûlullâh Shallallahu ‘alaihi wa sallam tentang Mukmin yang sudah meninggal yang bisa engkau sampaikan untuk menenangkan hati kami? Beliau Radhiyallahu anhu menjawab, ‘Ya.Anak-anak mereka adalah penghuni cilik surga.$^{[2]}$ Salah seorang dari mereka menyambut kedua orangtuanya, lalu memegang pakaian –atau tangan- orangtuanya sebagaimana saya sekarang memegang ujung bajumu, dan ia tidak melepaskannya sampai Allâh Azza wa Jalla memasukkan dirinya dan orangtuanya ke dalam surga.  
+> “Saya berkata kepada Abu Hurairah Radhiyallahu anhu, ‘Dua orang putra saya telah meninggal. Adakah hadits dari Rasûlullâh Shallallahu ‘alaihi wa sallam tentang Mukmin yang sudah meninggal yang bisa engkau sampaikan untuk menenangkan hati kami? Beliau Radhiyallahu anhu menjawab, ‘Ya.Anak-anak mereka adalah penghuni cilik surga [2]. Salah seorang dari mereka menyambut kedua orangtuanya, lalu memegang pakaian –atau tangan- orangtuanya sebagaimana saya sekarang memegang ujung bajumu, dan ia tidak melepaskannya sampai Allâh Azza wa Jalla memasukkan dirinya dan orangtuanya ke dalam surga.  
 > [HR. Muslim no. 2.635]
 >
 > Footnote:
