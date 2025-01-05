@@ -1,4 +1,4 @@
-# Caraku Menemukan Dirimu
+# Caraku Menemukan
 
 Apa yang kalian lakukan ketika jam kosong? Ada anak-anak yang sibuk mengerjakan tugas. Beberapa orang biasanya menyempatkan bermain game. Beberapa sekadar berkumpul dan mengobrol. Sementara aku? Aku biasanya keluar kelas, mendatangi kelas lain, lalu melihat keadaan - siapa tau ada hal menarik yang terjadi. Atau, aku akan mencari kelas kosong dan merenung sendirian. Kupikir, ini kebiasaan yang aneh, kayak orang ansos banget. Ada gak ya orang yang kebiasaannya sama kayak aku juga?
 
@@ -76,7 +76,7 @@ Semakin lama berada di dekat Eka, malah semakin banyak hal yang kusuka darinya. 
 
 Penampilannya mungkin sederhana, tapi, buatku dia yang paling cantik dari semua yang pernah kusukai selama ini. Biasanya, aku akan menyukai orang karna sifatnya, lalu perlahan tertarik dengan fisiknya. Tetapi kali ini, aku sudah tertarik dengan fisiknya sejak pertama kali kita mengobrol dulu (iya, waktu itu sebenernya aku mikir, *widih aku ngobrol beruda sama cecan nih*), lalu perlahan aku mulai tertarik dengan sifatnya. Bahkan yang paling kukhawatirkan darinya saat ini adalah bagaimana jika parasnya akan menarik orang-orang yang punya pikiran buruk? Biasanya kan, orang yang cantik yang akan lebih banyak digodain. Apalagi Eka memang ramah. Aku sangat takut dia akan diganggu orang. Aku senang sih dia sederhana dan terkadang banyak menunjukkan muka jutek yang dia bilang sebagai 'fitur untuk melindungi diri'. Tapi, tetep aja aku sangat khawatir.
 
-Dan jujur, aku sudah sempat mengutarakan perasaanku kepadanya. Dan. Yah, ini juga kutulis karna dia mau tau apa yang kusuka darinya.
+Jujur, aku sudah sempat mengutarakan perasaanku kepadanya. Dan ini juga kutulis karna dia mau tau apa yang kusuka darinya. Dia bilang, dia sangat terkejut dan nggak expect bakal ada orang yang suka sama perempuan kayak dia.
 
 Setelah ini, aku tidak tau apa yang akan terjadi antara aku dan Eka. Perjalanan kita masih jauh dan apa pun bisa terjadi di tengah jalan. Boleh jadi saat ini aku memiliki perasaan yang kuat untuknya, tetapi akhirnya perasaan itu hilang karna alasan tertentu. Bisa jadi saat ini dia tidak masalah dengan perasaanku tetapi nanti dia jatuh cinta dengan orang lain yang jauh lebih dia dambakan sehingga dia akan terganggu dengan perasaanku (iya, dia gak bilang punya perasaan yang sama untukku, bahkan dia bilang dia lagi berusaha untuk gak suka orang untuk sekarang. Tapi dia gak masalah sama apa yang kuutarakan. Dan aku juga gamasalah sama itu. Gak semuanya harus dijawab sekarang).
 
