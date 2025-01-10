@@ -26,7 +26,7 @@ Aku kenal Eka, tapi nggak yang begitu deket, sekadar kenalan anak kelas sebelah.
 
 Di sana, kita mengobrol untuk beberapa waktu sambil dia mengerjakan tugasnya (kita duduk cukup berjauhan), sampai salah satu temannya datang. Karna kupikir mungkin aku mengganggu urusan mereka, aku pergi.
 
-Ntah kenapa, sejak saat itu, aku selalu ngerasa kalau Eka punya vibes yang mirip dengan teman-teman lamaku. Aku gak ngerasa dia risih kalau ada aku, aku ngerasa gak perlu jaga image, sikap, dan omongan kalau sama Eka, dan aku ngerasa bisa jadi diriku sendiri. Menjadi aku yang bersikap random dan terkadang nyeleneh. Aku gak ngerasa takut dia menjauh. Ntah kenapa.
+Ntah kenapa, sejak saat itu, aku selalu ngerasa kalau Eka punya vibes yang mirip dengan teman-teman lamaku. Aku gak ngerasa dia risih kalau ada aku, aku ngerasa gak perlu jaga image, sikap, dan omongan kalau sama Eka, dan aku ngerasa bisa jadi diriku sendiri. Menjadi aku yang bersikap random dan terkadang nyeleneh. Aku gak ngerasa takut dia bakal menjauh. Ntah kenapa.
 
 Pernah satu waktu, aku sedang berada di dekat pagar, bersiap untuk pulang. Tapi kupikir, setelah pulang aku gaada kerjaan. Tapi di sini, juga gaada kerjaan. Aku hanya berdiam untuk beberapa waktu di sana. Sampai Eka datang.
 
