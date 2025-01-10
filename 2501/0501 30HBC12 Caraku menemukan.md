@@ -42,7 +42,7 @@ Pernah satu waktu, aku sedang berada di dekat pagar, bersiap untuk pulang. Tapi 
 >
 > "Bebas sih."
 
-Secara spontan aku minta pulang bareng padahal tujuan kita beda arah. Lucu menurutku. Aku bener-bener mikir orang ini udah kayak temen lamaku yang bebas kuganggu, padahal ngobrol kayak kemaren baru sekali. Terus juga sebentar doang. Deket juga sebenernya nggak.
+Secara spontan aku minta pulang bareng, padahal tujuan kita beda arah. Lucu menurutku. Aku bener-bener mikir orang ini udah kayak temen lamaku yang bebas kuganggu, padahal ngobrol kayak kemaren baru sekali. Terus juga sebentar doang. Deket juga sebenernya nggak.
 
 > "Kamu gapapa ikut aku?"
 >
@@ -54,7 +54,7 @@ Secara spontan aku minta pulang bareng padahal tujuan kita beda arah. Lucu menur
 >
 > "Gamasalah sih."
 
-Sepanjang jalan kita mengobrol. Dan aku ngerasa, dia benar-benar gak menunjukkan perasaan risih sama sekali. Apa dia memang seramah itu sama semua orang? Gimana kalau aku sebenernya orang jahat yang berniat buruk? Apa dia sebenernya risih tapi gaenak buat bilang? Pikiran-pikiran itu terus mengisi kepalaku. Akhirnya, di tengah jalan aku putuskan untuk berbelok dan pulang.
+Sepanjang jalan kita mengobrol. Dan aku pikir, apa dia memang seramah ini sama semua orang? Gimana kalau aku sebenernya orang jahat yang berniat buruk? Apa dia sebenernya risih tapi gaenak buat bilang? Pikiran-pikiran itu terus mengisi kepalaku. Akhirnya, di tengah jalan, aku putuskan untuk berbelok dan pulang.
 
 Anehnya, semenjak saat itu, aku jadi sering banget ketemu sama Eka. Random banget. Ntah itu efek dari Red Car Theory, atau memang setelah itu kita ditakdirkan untuk jadi banyak ketemu? Di depan mesjid tiba-tiba ketemu. Di jalan tiba-tiba ketemu. Dia lagi kehujanan di fotocopy tiba-tiba ketemu (terus aku sok-sokan minjemin payung, terus lari pulang hujan-hujanan).
 
@@ -80,24 +80,24 @@ Kata adikku, teman yang sebenarnya adalah yang tidak menjauh ketika kita bersika
 
 Semakin lama berada di dekat Eka, semakin banyak hal yang kusuka darinya. Mulai dari penampilannya yang sederhana dan tidak malu dengan kesederhanaannya. Auratnya yang tertutup lebih rapi dari kebanyakan perempuan. Tidak banyak mengeluh ketika ada kabar buruk atau kegiatan yang melelahkan. Antusias ketika mengerjakan tugasnya. Bersikap percaya diri di sekitar teman-temannya. Sikapnya yang banyak bicara dan bisa mencairkan suasana. Membicarakan bagaimana dia ingin menjadi ibu di keluarganya nanti. Membicarakan apa yang akan dia lakukan untuk anaknya nanti. Banyak. And I really like everything about her.
 
-Penampilannya mungkin sederhana, tapi, buatku dia yang paling cantik dari semua temanku. Biasanya, aku akan menyukai orang karna sifatnya, lalu perlahan tertarik dengan fisiknya. Tetapi kali ini, aku sudah tertarik dengan fisiknya sejak pertama kali kita mengobrol dulu, lalu perlahan aku mulai tertarik dengan sifatnya.
+Penampilannya mungkin sederhana, tapi, buatku dia yang paling cantik dari semua temanku. Biasanya, aku akan menyukai orang karna sifatnya, lalu perlahan tertarik dengan fisiknya. Tetapi kali ini, sebenarnya aku sudah tertarik dengan fisiknya sejak pertama kali kita mengobrol dulu, lalu perlahan aku mulai tertarik dengan sifatnya.
 
-Bahkan yang paling kukhawatirkan darinya saat ini adalah bagaimana jika parasnya akan menarik orang-orang yang punya pikiran buruk? Biasanya kan, orang yang cantik yang akan lebih banyak diganggu. Apalagi Eka memang ramah. Aku senang sih dia sederhana dan terkadang menunjukkan ekspresi jutek yang dia sebut sebagai 'fitur untuk melindungi diri'. Tapi, tetep aja aku sangat khawatir.
+Bahkan yang paling kukhawatirkan darinya saat ini adalah bagaimana jika parasnya akan menarik orang-orang yang punya pikiran buruk? Biasanya kan, orang yang cantik yang akan lebih banyak diganggu Apalagi Eka memang ramah. Aku senang sih dia sederhana dan terkadang menunjukkan ekspresi jutek yang dia sebut sebagai 'fitur untuk melindungi diri'. Tapi, tetep aja aku sangat khawatir.
 
 Jujur, aku sudah sempat mengutarakan perasaanku kepadanya. Dan ini juga kutulis karna dia mau tau apa yang kusuka darinya.
 
 Tapi memang, aku tidak tau apa yang akan terjadi antara aku dan Eka. Perjalanan kita masih jauh dan apa pun bisa terjadi di tengah jalan.
 
-Dia tidak bilang kalau dia punya perasaan yang sama untukku. Bahkan dia bilang, dia sedang berusaha untuk tidak menyukai orang untuk sekarang. Tapi dia tidak masalah dengan apa yang kuutarakan. Dan itu saja sudah membuatku sangat senang. Dan kalau memang ada yang lebih baik untuknya...
+Dia tidak bilang kalau dia punya perasaan yang sama untukku. Bahkan dia bilang, dia sedang berusaha untuk tidak menyukai orang untuk sekarang. Tapi dia tidak masalah dengan apa yang kuutarakan, tidak terganggu. Dan itu saja sudah membuatku sangat-sangat senang. Dan kalau memang ada yang lebih baik dariku untuknya...
 
 *Aku ingin dia lebih mengutamakan dirinya sendiri daripada aku.*
 
 Sebenarnya, ini mungkin bisa dibilang kesalahanku karna aku benar-benar lemah kalau sudah masalah perasaan. Hasilnya pun, mungkin sama saja jika aku tidak mengatakan apa-apa.
 
-Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada hal-hal romantis lainnya. Jujur, aku sedih. Tapi menurutku, ini adalah hal yang bagus dan inilah jalan yang pantas untuk kujalani.
+Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada hal-hal romantis lainnya. Jujur, aku sedih. Tapi menurutku, ini adalah hal yang sangat-sangat bagus dan inilah jalan yang pantas untuk kujalani.
 
 Aku harap aku bisa dimaafkan. Setidaknya, dia paham kenapa aku terkadang menghubunginya tanpa alasan. Dan juga, setidaknya dia tau kalau paling tidak ada satu orang yang sangat menyukainya, selalu mengkhawatirkannya, dan selalu mendoakan yang terbaik untuknya.
 
-Aku akan mempertahankan perasaanku untuk beberapa waktu lagi. Itu saja. Berusaha tidak berpikir kalau ini dan kalau itu, kenapa begini kenapa begitu. Berpikiran positif kepadanya. Sisanya aku serahkan ke Allah saja.
+Aku akan coba mempertahankan perasaanku untuk beberapa waktu lagi. Itu saja. Berusaha tidak berpikir kalau ini dan kalau itu, kenapa begini kenapa begitu. Berpikiran positif kepadanya. Sisanya aku serahkan ke Allah saja.
 
 Kalau bukan jalanku, semoga aku diberikan jalan yang jauh lebih baik. Kalau memang sudah jalan terbaik, semoga dimudahkan.
