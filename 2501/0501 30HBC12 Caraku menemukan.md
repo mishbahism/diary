@@ -88,16 +88,16 @@ Jujur, aku sudah sempat mengutarakan perasaanku kepadanya. Dan ini juga kutulis 
 
 Tapi memang, aku tidak tau apa yang akan terjadi antara aku dan Eka. Perjalanan kita masih jauh dan apa pun bisa terjadi di tengah jalan.
 
-Dia tidak bilang kalau dia punya perasaan yang sama untukku. Bahkan dia bilang, dia sedang berusaha untuk tidak menyukai orang untuk sekarang. Tapi dia tidak masalah dengan apa yang kuutarakan. Dan aku juga tidak masalah dengan itu. Dan kalau memang ada yang lebih baik untuknya...
+Dia tidak bilang kalau dia punya perasaan yang sama untukku. Bahkan dia bilang, dia sedang berusaha untuk tidak menyukai orang untuk sekarang. Tapi dia tidak masalah dengan apa yang kuutarakan. Dan itu saja sudah membuatku sangat senang. Dan kalau memang ada yang lebih baik untuknya...
 
 *Aku ingin dia lebih mengutamakan dirinya sendiri daripada aku.*
 
 Sebenarnya, ini mungkin bisa dibilang kesalahanku karna aku benar-benar lemah kalau sudah masalah perasaan. Hasilnya pun, mungkin sama saja jika aku tidak mengatakan apa-apa.
 
-Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada mesra-mesraan dan hal romantis lainnya. Jujur, aku sedih. Tapi menurutku, ini bagus dan inilah jalan yang sepantasnya kujalani.
+Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada hal-hal romantis lainnya. Jujur, aku sedih. Tapi menurutku, ini adalah hal yang bagus dan inilah jalan yang pantas untuk kujalani.
 
 Aku harap aku bisa dimaafkan. Setidaknya, dia paham kenapa aku terkadang menghubunginya tanpa alasan. Dan juga, setidaknya dia tau kalau paling tidak ada satu orang yang sangat menyukainya, selalu mengkhawatirkannya, dan selalu mendoakan yang terbaik untuknya.
 
-Aku akan mempertahankan perasaanku untuk beberapa waktu lagi. Itu saja. Berusaha tidak berpikir kalau ini dan kalau itu, kenapa begini kenapa begitu. Aku serahkan ke Allah saja.
+Aku akan mempertahankan perasaanku untuk beberapa waktu lagi. Itu saja. Berusaha tidak berpikir kalau ini dan kalau itu, kenapa begini kenapa begitu. Berpikiran positif kepadanya. Sisanya aku serahkan ke Allah saja.
 
-Kalau bukan jalanku, tolong berikan jalan yang jauh lebih baik. Kalau memang sudah jalan terbaik, semoga dimudahkan.
+Kalau bukan jalanku, semoga aku diberikan jalan yang jauh lebih baik. Kalau memang sudah jalan terbaik, semoga dimudahkan.
