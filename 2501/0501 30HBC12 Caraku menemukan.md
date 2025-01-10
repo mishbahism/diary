@@ -72,7 +72,7 @@ Tingkahnya semakin lama semakin menyebalkan. Kadang dia berdiri terlalu dekat de
 
 Kata adikku, teman yang sebenarnya adalah yang tidak menjauh ketika kita bersikap aneh dan menyebalkan.
 
-Semakin lama berada di dekat Eka, malah semakin banyak hal yang kusuka darinya. Mulai dari penampilannya yang sederhana dan tidak malu dengan kesederhanaannya. Tidak mengeluh ketika ada kabar buruk atau kegiatan yang melelahkan. Antusias ketika mengerjakan tugasnya. Bersikap percaya diri di sekitar teman-temannya. Membicarakan bagaimana dia ingin menjadi ibu di keluarganya nanti. Membicarakan apa yang akan dia lakukan untuk anaknya nanti. Pendapatnya kalau dia tidak terlalu peduli bila akan dijodohkan. Sikapnya yang banyak bicara dan mau dan tahan mengobrol denganku. Auratnya yang tertutup lebih rapi dari kebanyakan perempuan. Banyak. And I really like everything about her.
+Semakin lama berada di dekat Eka, malah semakin banyak hal yang kusuka darinya. Mulai dari penampilannya yang sederhana dan tidak malu dengan kesederhanaannya. Tidak banyak mengeluh ketika ada kabar buruk atau kegiatan yang melelahkan. Antusias ketika mengerjakan tugasnya. Bersikap percaya diri di sekitar teman-temannya. Membicarakan bagaimana dia ingin menjadi ibu di keluarganya nanti. Membicarakan apa yang akan dia lakukan untuk anaknya nanti. Pendapatnya kalau dia tidak terlalu peduli bila akan dijodohkan. Sikapnya yang banyak bicara dan mau dan tahan mengobrol denganku. Auratnya yang tertutup lebih rapi dari kebanyakan perempuan. Banyak. And I really like everything about her.
 
 Penampilannya mungkin sederhana, tapi, buatku dia yang paling cantik dari semua yang pernah kusukai selama ini. Biasanya, aku akan menyukai orang karna sifatnya, lalu perlahan tertarik dengan fisiknya. Tetapi kali ini, aku sudah tertarik dengan fisiknya sejak pertama kali kita mengobrol dulu (iya, waktu itu sebenernya aku mikir, *widih aku ngobrol sama cecan nih*), lalu perlahan aku mulai tertarik dengan sifatnya.
 
@@ -82,8 +82,12 @@ Jujur, aku sudah sempat mengutarakan perasaanku kepadanya. Dan ini juga kutulis 
 
 Setelah ini, aku tidak tau apa yang akan terjadi antara aku dan Eka. Perjalanan kita masih jauh dan apa pun bisa terjadi di tengah jalan. Boleh jadi saat ini aku memiliki perasaan yang kuat untuknya, tetapi akhirnya perasaan itu hilang karna alasan tertentu. Bisa jadi saat ini dia tidak masalah dengan perasaanku tetapi nanti dia jatuh cinta dengan orang lain yang jauh lebih dia dambakan sehingga dia akan terganggu dengan perasaanku.
 
-Yah, dia gak bilang punya perasaan yang sama untukku, bahkan dia bilang dia lagi berusaha untuk gak suka orang untuk sekarang. Tapi dia gak masalah sama apa yang kuutarakan. Dan aku juga gamasalah sama itu. Gak semuanya harus dijawab sekarang. Bahkan kalau memang ada yang lebih baik untuknya, aku ingin dia lebih mengutamakan dirinya daripada aku.
+Yah, dia gak bilang punya perasaan yang sama untukku, bahkan dia bilang, dia lagi berusaha untuk gak suka orang untuk sekarang. Tapi dia gak masalah sama apa yang kuutarakan. Dan aku juga gamasalah sama itu. Gak semuanya harus dijawab sekarang. Bahkan kalau memang ada yang lebih baik untuknya...
+
+*Aku ingin dia lebih mengutamakan dirinya daripada aku.*
 
 Confess itu nggak selalu masalah mengadakan status tertentu atau membuat komitmen tertentu. Terkadang, ia hanya berfungsi untuk memperjelas keadaan sehingga tidak ada yang perlu ditutup-tutupi dan menghindari kesalahpahaman. Aku tidak menyarankan siapa pun untuk confess sih. Ini mungkin bisa dibilang kesalahanku karna aku benar-benar lemah kalau sudah masalah perasaan. Hasilnya pun, mungkin sama saja jika aku tidak mengatakan apa-apa.
 
-Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak ada panggilan khusus. Tidak ada rasa saling memiliki. Tidak ada mesra-mesraan dan hal romantis lainnya. Tapi, setidaknya dia tau kalau paling tidak ada satu orang yang sangat menyukainya, selalu mengkhawatirkannya, dan selalu mendoakan yang terbaik untuknya.
+Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada mesra-mesraan dan hal romantis lainnya. Tapi sedidaknya dia paham kenapa aku terkadang menghubunginya tanpa alasan. Dan juga, setidaknya dia tau kalau paling tidak ada satu orang yang sangat menyukainya, selalu mengkhawatirkannya, dan selalu mendoakan yang terbaik untuknya.
+
+Aku akan mempertahankan perasaanku untuk beberapa waktu lagi. Itu saja. Berusaha tidap berpikir kalau ini kalau itu, kenapa begini kenapa begitu. Aku serahkan ke Allah saja. Kalau bukan jalanku, tolong berikan jalan yang jauh lebih baik. Kalau memang sudah jalan terbaik, semoga dimudahkan.
