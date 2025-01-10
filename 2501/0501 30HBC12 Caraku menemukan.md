@@ -8,7 +8,7 @@ Satu kelas kudatangi, orang ramai dengan urusannya masing-masing.
 
 Dan satu kelas lagi kudatangi, kosong. Eh. Tunggu. Ada satu orang.
 
-Eka sedang sibuk mengerjakan tugas sendirian di ruang kosong!
+Eka sedang sibuk mengerjakan tugas sendirian di ruang kosong itu!
 
 *Wah. Rajin banget ni orang.*
 
