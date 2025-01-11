@@ -14,11 +14,11 @@ Eka sedang sibuk mengerjakan tugas sendirian di ruang kosong itu!
 
 > "Lagi ngerjain apa? Rajin banget."
 >
-> "Ini tugas di kelasku kemaren. Aku belum selesai hahahh. Tapi gak banyak kok."
+> "Ini tugas kemaren. Aku belum selesai hahahh. Tapi gak banyak kok."
 >
 > "Oalah..."
 
-Aku kenal Eka, tapi nggak yang begitu deket, sekadar kenalan anak kelas sebelah. Dan setauku, Eka itu bukan anak yang rajin-rajin gimana. Tapi ya, bagus juga kalau dia menyempatkan mengerjakan tugas yang kurang di jam kosong begini.
+Aku kenal Eka, tapi nggak yang begitu deket, sekadar kenalan. Dan setauku, Eka itu bukan anak yang rajin-rajin gimana. Tapi ya, bagus juga kalau dia menyempatkan mengerjakan tugas yang kurang di jam kosong begini.
 
 > "Aku numpang duduk di sini ya."
 >
@@ -62,13 +62,15 @@ Anehnya, semenjak saat itu, aku jadi sering banget ketemu sama Eka. Random bange
 >
 > "Ya gatau."
 
-Aku sempat berpikir, apa jangan-jangan ini jodohku ya? Tapi nggak lah. Kebetulan doang. Aku gak pengen juga sama Eka karena aku udah punya orang yang kusuka. Tapi kalau ternyata nanti harus sama Eka... 
+Aku sempat berpikir, apa jangan-jangan ini jodohku ya? Tapi nggak lah. Kebetulan doang. Aku gak pengen juga sama Eka karena aku udah punya orang yang kusuka. Tapi kalau ternyata nanti harus sama Eka...
 
 *Hmmm, ya gapapa juga sih.*
 
+. . .
+
 Tahun depannya, aku berkesempatan untuk ikut satu event bareng Eka. Dan. Huhhhh... Ini dia. Long story short, I fell in love with her.
 
-Saat event itu berlangsung, aku sedang dalam keadaan sangat sedih karna perilaku orang yang sebelumnya kusukai. Aku berniat untuk tidak menyukai orang lain lagi selama yang kubisa karna rasanya memuakkan dan menyita terlalu banyak waktu dan pikiranku. Aku memang benar-benar lemah kalau sudah menyangkut masalah perasaanku ke orang yang kusuka, efeknya parah.
+Saat event itu berlangsung, aku sedang dalam keadaan sangat sedih karna suatu hal terkait orang yang sebelumnya kusukai. Aku berniat untuk tidak menyukai orang lain lagi selama yang kubisa karna rasanya memuakkan dan menyita terlalu banyak waktu dan pikiranku. Aku memang benar-benar lemah kalau sudah menyangkut masalah perasaanku, efeknya parah.
 
 Hanya saja, di event itu, Eka benar-benar sering mendatangiku dan mengajakku bicara. Menurutku itu sangat menyebalkan karna aku harus ekstra menahan diri. Dan sayangnya, aku memang pada dasarnya tidak punya banyak teman. Aku tidak bisa pungkiri kalau aku merasa sangat nyaman setiap berada di dekat Eka.
 
@@ -82,7 +84,7 @@ Semakin lama berada di dekat Eka, semakin banyak hal yang kusuka darinya. Mulai 
 
 Penampilannya mungkin sederhana, tapi, buatku dia yang paling cantik dari semua temanku. Biasanya, aku akan menyukai orang karna sifatnya, lalu perlahan tertarik dengan fisiknya. Tetapi kali ini, sebenarnya aku sudah tertarik dengan fisiknya sejak pertama kali kita mengobrol dulu, lalu perlahan aku mulai tertarik dengan sifatnya.
 
-Bahkan yang paling kukhawatirkan darinya saat ini adalah bagaimana jika parasnya akan menarik orang-orang yang punya pikiran buruk? Biasanya kan, orang yang cantik yang akan lebih banyak diganggu Apalagi Eka memang ramah. Aku senang sih dia sederhana dan terkadang menunjukkan ekspresi jutek yang dia sebut sebagai 'fitur untuk melindungi diri'. Tapi, tetep aja aku sangat khawatir.
+Bahkan yang paling kukhawatirkan darinya saat ini adalah bagaimana jika parasnya akan menarik orang-orang yang punya pikiran buruk? Biasanya kan, yang paling menarik yang akan lebih banyak diganggu. Apalagi Eka memang ramah. Aku senang dia sederhana dan terkadang menunjukkan ekspresi jutek yang dia sebut sebagai 'fitur untuk melindungi diri'. Tapi, tetep aja aku sangat khawatir.
 
 Jujur, aku sudah sempat mengutarakan perasaanku kepadanya. Dan ini juga kutulis karna dia mau tau apa yang kusuka darinya.
 
@@ -94,10 +96,12 @@ Dia tidak bilang kalau dia punya perasaan yang sama untukku. Bahkan dia bilang, 
 
 Sebenarnya, ini mungkin bisa dibilang kesalahanku karna aku benar-benar lemah kalau sudah masalah perasaan. Hasilnya pun, mungkin sama saja jika aku tidak mengatakan apa-apa.
 
-Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada hal-hal romantis lainnya. Jujur, aku sedih. Tapi menurutku, ini adalah hal yang sangat-sangat bagus dan inilah jalan yang pantas untuk kujalani.
+Saat ini, aku dan Eka hanya berteman seperti teman biasa. Tidak banyak interaksi. Tidak ada panggilan khusus. Tidak ada hal-hal romantis lainnya. Jujur, aku sedih. Tapi menurutku, ini adalah hal yang sangat-sangat bagus dan inilah jalan yang pantas untuk kujalani. Aku harus mulai mencari sumber kebahagiaan lain selain darinya, untuk sekarang. Kalau tidak, aku akan terus-terusan melakukan kesalahan yang sama.
 
 Aku harap aku bisa dimaafkan. Setidaknya, dia paham kenapa aku terkadang menghubunginya tanpa alasan. Dan juga, setidaknya dia tau kalau paling tidak ada satu orang yang sangat menyukainya, selalu mengkhawatirkannya, dan selalu mendoakan yang terbaik untuknya.
 
 Aku akan coba mempertahankan perasaanku untuk beberapa waktu lagi. Itu saja. Berusaha tidak berpikir kalau ini dan kalau itu, kenapa begini kenapa begitu. Berpikiran positif kepadanya. Sisanya aku serahkan ke Allah saja.
 
 Kalau bukan jalanku, semoga aku diberikan jalan yang jauh lebih baik. Kalau memang sudah jalan terbaik, semoga dimudahkan.
+
+Hasil akhirnya gak mungkin salah.
