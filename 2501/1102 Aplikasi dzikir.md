@@ -45,7 +45,13 @@ Bagaimana kamu akan berhitung 1 sampai 99?
 Kamu pasti frustrasi kan??
 Tenang, kini ada Counter Easy!
 
-Dengan counter easy, kamu bisa melakukan tap layar dan angka di layar akan bertambah 1. Wow! Canggih bukan.
+<!-- markdownlint-disable MD018 -->
+@30haribercerita
+#30haribercerita
+#30hbc2512
+<!-- markdownlint-enable MD018 -->
+
+Dengan counter easy, kamu bisa melakukan tap layar dan angka di layar akan bertawmbah 1. Wow! Canggih bukan.
 
 Selain itu kamu juga bisa menambah counter dan batasannya sesuai keinginan kamu.
 
