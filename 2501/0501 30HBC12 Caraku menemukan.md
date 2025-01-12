@@ -66,8 +66,6 @@ Aku sempat berpikir, apa jangan-jangan ini jodohku ya? Tapi nggak lah. Kebetulan
 
 *Hmmm, ya gapapa juga sih.*
 
-. . .
-
 Tahun depannya, aku berkesempatan untuk ikut satu event bareng Eka. Dan. Huhhhh... Ini dia. Long story short, I fell in love with her.
 
 Saat event itu berlangsung, aku sedang dalam keadaan sangat sedih karna suatu hal terkait orang yang sebelumnya kusukai. Aku berniat untuk tidak menyukai orang lain lagi selama yang kubisa karna rasanya memuakkan dan menyita terlalu banyak waktu dan pikiranku. Aku memang benar-benar lemah kalau sudah menyangkut masalah perasaanku, efeknya parah.
